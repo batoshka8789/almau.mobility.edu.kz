@@ -1,1 +1,1 @@
-# almau.mobility.edu.kz
+
